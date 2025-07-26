@@ -1,5 +1,5 @@
-![İmage](https://files.catbox.moe/6ir1ld.png)
-ı wıll fix this later..art credits to Tempestloveyo on twt
+![İmage](https://files.catbox.moe/50fnvx.png)
+art credits to Tempestloveyo on twt
 <!--
 **NuremPacet/NuremPacet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
